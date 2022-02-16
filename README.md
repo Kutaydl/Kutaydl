@@ -1,4 +1,4 @@
--Hi, I’m @Kutaydl. 
+-Hi, I’m Mehmet Kutay Dil. 
 
 -i am a computer engineering student in Turkey. 
 
