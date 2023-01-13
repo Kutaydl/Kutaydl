@@ -4,6 +4,6 @@
 
 -Besides my general computer knowledge, I am also interested in cyber security.
 
-Did you follow me on instagram? 
+Have you visited my website? 
 
-----instagram.com/kutaydl----
+----https://kutaydl.com----
